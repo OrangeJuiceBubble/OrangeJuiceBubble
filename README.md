@@ -1,3 +1,4 @@
+cebcc0b3c68974f7ae95ed253371aa80.jpg
 ## SYS
 ------
 We're sensitive, and would appreciate it if you would respect our boundaries. We also have a hard time speaking and being open, you either start the conversation, or we sit in silence.
